@@ -20,5 +20,5 @@ Here are some ideas to get you started:
 - Currently trying to get through the Persona series
 - Programming fuels the power through myself
   
-- ⚡ Fav games: Life is strange, Undertale
+- ⚡ Fav games: Life is strange, Undertale, Minecraft, City skylines, Indigo Park
 - ⚡ Fun fact: i used to own 100 pets. no i wont elborate 
