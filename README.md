@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- Im currently working on a lot of differnt projects
+- Mainly video games!
+- Currently trying to get through the Persona series
+- Programming fuels the power through myself
+  
+- ⚡ Fav games: Life is strange, Undertale
+- ⚡ Fun fact: i used to own 100 pets. no i wont elborate 
